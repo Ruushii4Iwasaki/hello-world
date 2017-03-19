@@ -3,4 +3,4 @@ Just another repository
 
 Hi !
 
-I'm French ans new here, be indulgent ! ;)
+I'm French and new here, be indulgent ! ;)
